@@ -30,7 +30,7 @@ I'm open to new job opportunities in data analysis, business intelligence, busin
 
 Get in Touch
 
-Feel free to reach out to me at nwankwochiedozie33@gmail.com or https://chiedozienwankwo.wixsite.com/real for collaborations, discussions, jobs or just to say hello!
+Feel free to reach out to me at nwankwochiedozie33@gmail.com or https://www.linkedin.com/in/chiedozie-nwankwo/ for collaborations, discussions, jobs or just to say hello!
 
 Goals
 
