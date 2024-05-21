@@ -11,7 +11,7 @@ Technical Skills
 
 Projects
 
-- Bike Community Dashboard: A data visualization project showcasing the impact of bike-sharing programs on urban transportation. [Insert link to repo or live demo]
+- Bike Community Dashboard: A data visualization project showcasing the impact of bike-sharing programs on urban transportation. [https://github.com/Stanley-Chiedozie/Bike-Sales-Dashboard]
 
 Achievements
 
